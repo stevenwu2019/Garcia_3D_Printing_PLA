@@ -7,4 +7,10 @@ Special Thanks:
 
 Grad Student: Yuval
 
+Group: Xiaoxin (Katherine) Wang, Steven Wu, Derek Zheng
+
+Special Thanks:
+
+Grad Student: Yuval Shmueli
+
 Professors: Miriam Rafailovich
